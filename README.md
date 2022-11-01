@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Tadaiji
+- 👋 Hi, I’m Daniel Schirrmann (Online Tadaiji)
 - 🌱 I’m currently a Master student at the TU-Darmstadt
 - 📫 How to reach me at my TU Mail (if you know you know)
 
